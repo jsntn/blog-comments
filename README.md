@@ -1,1 +1,1 @@
-Comments from Blog
+Comments from [Blog](//wheat.at)
